@@ -4,6 +4,6 @@ Neurospychiatric research unit @ Psychiatric Department Odense - University Func
 
 Don't Panic.
 
-With a seemingly endless universe, seemingly endless possibilities arises!
+With a seemingly endless universe, seemingly endless possibilities arise!
 
 Bring Coffee and your favorite towel, and join our trip in space, time (or the illusion thereoff) and psychiatric/neurodegenerative diseases.
